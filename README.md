@@ -4,7 +4,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on GameDev INEXT3
+- 🔭 I’m currently working on GameDev INEXT3 INDONESIA
 - 🌱 I’m currently learning Game Development, Web Development
 - 👯 I’m looking to collaborate on ...  oo
 - 🤔 I’m looking for help with ...
