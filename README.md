@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🏫 I’m graduation from Telkom University of Indonesia
 - 💬 Ask me about ...
 - you can call me Wahyu or Budy
-- 📫 How to reach me on YT
+- 📫 How to reach me on YT JustJazHujan
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i'm like cooking😁
 - 📔 I like books with fictional, dark fantasy and post-apocalyptic themes
