@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on FromSoftware Game Development
 - 🤔 I’m looking for help with Senior Game Dev
 - 🏫 I’m graduation from Telkom University of Indonesia
-- 💬 Ask me about ...
+- 💬 Ask me about Hobby/Favourite Foods and Drinks
 - you can call me Wahyu or Budy
 - 📫 How to reach me on YT JustJazHujan
 - 😄 Pronouns: ...
