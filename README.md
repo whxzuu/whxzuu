@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about Hobby/Favourite Foods and Drinks
 - you can call me Wahyu or Budy
 - 📫 How to reach me on YT JustJazHujan
-- 😄 Pronouns: ...
+- 😄 "Simply Lovely" this my words
 - ⚡ Fun fact: i'm like cooking😁
 - 📔 I like books with fictional, dark fantasy and post-apocalyptic themes
 
