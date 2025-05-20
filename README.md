@@ -7,7 +7,8 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on GameDev INEXT3 INDONESIA
 - 🌱 I’m currently learning Game Development, Web Development 
 - 👯 I’m looking to collaborate on FromSoftware Game Development
-- 🤔 I’m looking for help with Senior Game Dev
+- 🤔 I’m looking for help with Senior Game Development
+- 🏫 I’m study game programming with Infinite Learning, a division of PT Kinema Systrans multimedia (a subsidiary of Infinite Studios) in Batam, Indonesian
 - 🏫 I’m graduation from Telkom University of Indonesia
 - 💬 Ask me about Hobby/Favourite Foods and Drinks
 - you can call me Wahyu or Budy
