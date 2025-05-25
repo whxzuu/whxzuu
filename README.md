@@ -16,4 +16,5 @@ Here are some ideas to get you started:
 - 😄 "Simply Lovely" this my words
 - ⚡ Fun fact: i'm like cooking😁
 - 📔 I like books with fictional, dark fantasy and post-apocalyptic themes
+- 🌐 I’m currently use instagram with username "whyxuu_zz"
 
