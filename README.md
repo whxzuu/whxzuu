@@ -4,7 +4,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on GameDev INEXT3 INDONESIAN
+- 🔭 I’m currently working on GameDev INEXT3 INDONESIAN Country
 - 🌱 I’m currently learning Game Development, Web Development 
 - 👯 I’m looking to collaborate on FromSoftware Game Development Program
 - 🤔 I’m looking for help with Senior Game Development 
