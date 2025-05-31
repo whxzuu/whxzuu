@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🏫 I’m study game programming with Infinite Learning, a division of PT Kinema Systrans multimedia (a subsidiary of Infinite Studios) in Batam, Indonesian
 - 🏫 I’m graduation from Telkom University of Indonesia
 - 💬 Ask me about Hobby/Favourite Foods and Drinks
-- you can call me Wahyu or Buddy
+- you can call me Wahyu or Buddy 
 - 📫 How to reach me on YT JustJazHujan
 - 😄 "Simply Lovely" this my words  
 - ⚡ Fun fact: i'm like cooking😁
