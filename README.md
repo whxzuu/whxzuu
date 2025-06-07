@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about Hobby/Favourite Foods and Drinks, i ilke a sweet cake, non alcohol and drink or food have much sweet maybe i prefers drink or food less sugar
 - you can call me Wahyu or Buddy 
 - 📫 How to reach me on YT JustJazHujan
-- 😄 "Simply Lovely" this my words  
+- 😄 "Simply Lovely" this my words   
 - ⚡ Fun fact: i'm like cooking😁
 - 📔 I like books with fictional, dark fantasy and post-apocalyptic themes
 - 🌐 I’m currently use instagram with username "whyxuu_zz"
