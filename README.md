@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on GameDev INEXT3 INDONESIAN Country as Programming, Design, Project Manajer
 - 🌱 I’m currently learning Game Development, Web Development      
 - 👯 I’m looking to collaborate on FromSoftware Game Development Program   
-- 🤔 I’m looking for help with Senior Game Development 
+- 🤔 I’m looking for help with Senior Game Development   
 - 🏫 I’m study game programming with Infinite Learning, a division of PT Kinema Systrans multimedia (a subsidiary of Infinite Studios) in Batam, Indonesian
 - 🏫 I’m graduation from Telkom University of Indonesia
 - 💬 Ask me about Hobby/Favourite Foods and Drinks, i ilke a sweet cake, non alcohol and drink or food have much sweet maybe i prefers drink or food less sugar
