@@ -4,7 +4,7 @@
 
 Here are some ideas to get you started:  
 
-- 🔭 I’m currently working on GameDev INEXT3 INDONESIAN Country as Programming, Design, Project Manajer
+- 🔭 I’m currently working on GameDev INEXT3 INDONESIAN Country as Programming, Design, Project Manajer    
 - 🌱 I’m currently learning Game Development, Web Development, Mobile Android Development   
 - 👯 I’m looking to collaborate on FromSoftware Game Development Program   
 - 🤔 I’m looking for help with Senior Game Development    
