@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - you can call me Wahyu or Buddy 
 - 📫 How to reach me on YT JustJazHujan and YT Relung Semenit    
 - 😄 "Simply Lovely" this my words      
-- ⚡ Fun fact: i'm like cooking😁
+- ⚡ Fun fact: i'm like cooking😁  
 - 📔 I like books with fictional, dark fantasy and post-apocalyptic themes
 - 🌐 I’m currently use instagram with username "whyxuu_zz"  
 - Own Home Server
