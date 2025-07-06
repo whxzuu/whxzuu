@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: i'm like cooking😁  
 - 📔 I like books with fictional, dark fantasy and post-apocalyptic themes
 - 🌐 I’m currently use instagram with username "whyxuu_zz"  
-- Own Home Server
+- Own Home Server  
 - Welcome to my Github and my Projects (Unity Game, Website, Mobile Apps)
