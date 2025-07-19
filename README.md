@@ -20,3 +20,5 @@ Here are some ideas to get you started:
 - Im have 1 year experience in warehouse management
 - i'm Create Whole Web Project.
 - i and my friends have a big game project called Tunnel's Enigma: Gateway to the Elsewhere
+
+- Ready to Work
